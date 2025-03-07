@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @yoElephant
+- 👋 Hi, I’m Elephant or Liam, whatever you want to call me
 - 👀 I’m interested in making games, reading, and studying for school.
-- 🌱 I’m currently majoring in computer science and minoring in Japanese.
+- 🌱 I’m currently majoring in computer science and Japanese.
 - 💞️ I’m looking to collaborate on, not sure yet but once I become more skilled, I'd love to build video games with other people.
 - 📫 How to reach me, you could dm me on twitter or friend me on discord - yoelephant
 - 😄 Pronouns: he/him
