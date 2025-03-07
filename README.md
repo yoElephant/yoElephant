@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Elephant or Liam, whatever you want to call me
+- 👋 Hi, I’m Liam Stone, or you can call me elephant.
 - 👀 I’m interested in making games, reading, and studying for school.
 - 🌱 I’m currently majoring in computer science and Japanese.
 - 💞️ I’m looking to collaborate on, not sure yet but once I become more skilled, I'd love to build video games with other people.
