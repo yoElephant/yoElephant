@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Liam Stone, or you can call me elephant.
+- 👋 Hi, I’m Liam Stone
 - 🌱 I’m currently majoring in Physics and Japanese.
 - 📫 How to reach me, you could dm me on twitter or friend me on discord - yoelephant
 - 😄 Pronouns: he/him
